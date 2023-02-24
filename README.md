@@ -8,6 +8,10 @@
 
 - https://qybbs.buzz 群游论坛
 
+- https://qybbs.gay 群游论坛
+
+- https://qybbs.wtf 群游论坛
+
 - https://qybbs.tk 群游论坛
 
 - https://qybbs.ml 群游论坛
